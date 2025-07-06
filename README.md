@@ -1,4 +1,4 @@
-[👀 Gamdom Türkiye Güncel Giriş için Tıklayın ⚡](tinyurl.com/GamdmVIP)
+[ Gamdom Türkiye Güncel Giriş için Tıklayın ⚡]( tinyurl.com/GamdmVIP )
  # - 👋 Güncel Giriş İçin Yukaridaki Giriş Linkine Tıklayın
  # - 👋 Gamdom TR Giriş
  # - 👀 # Gamdom Güncel Giriş
